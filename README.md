@@ -12,6 +12,12 @@ Bài 2: <br>
 Bài 3: <br>
 ![image](https://github.com/user-attachments/assets/20dea911-bf73-4bbf-b844-b7f24647fa19)
 <br>
+![image](https://github.com/user-attachments/assets/1d5f7f32-b3aa-4b3e-9683-9f05ab90a6b4)
+<br>
+![image](https://github.com/user-attachments/assets/3be3c235-1303-4cda-bdec-a3945456bc4a)
+<br>
+Bài 4: <br>
+
 
 
 
