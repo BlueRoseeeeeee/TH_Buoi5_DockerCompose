@@ -17,6 +17,8 @@ Bài 3: <br>
 ![image](https://github.com/user-attachments/assets/3be3c235-1303-4cda-bdec-a3945456bc4a)
 <br>
 Bài 4: <br>
+![image](https://github.com/user-attachments/assets/c6e881a3-4538-4847-9e78-f2605e363f84)
+<br>
 
 
 
