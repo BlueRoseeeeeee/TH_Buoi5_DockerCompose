@@ -8,6 +8,11 @@ Bài 2: <br>
 ![image](https://github.com/user-attachments/assets/92ef84ce-f9a9-4d1c-b8fb-d9dc4defddad)
 <br>
 ![image](https://github.com/user-attachments/assets/5b686340-363e-4871-9499-3e4f8db60d09)
+<br>
+Bài 3: <br>
+![image](https://github.com/user-attachments/assets/20dea911-bf73-4bbf-b844-b7f24647fa19)
+<br>
+
 
 
 
