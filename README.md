@@ -29,7 +29,8 @@ Bài 7: <br>
 ![image](https://github.com/user-attachments/assets/d86fc530-0a7c-4e9b-b6c1-d3cd22e79607)
 <br>
 Bài 9: <br>
-![Uploading image.png…]()
+![image](https://github.com/user-attachments/assets/be865791-d0c7-4f21-9593-bc272c721509)
+
 
 
 
