@@ -22,6 +22,10 @@ Bài 4: <br>
 Bài 5: <br>
 ![image](https://github.com/user-attachments/assets/ef8fe3bc-cd81-483d-bad4-1a154da35bfb)
 <br>
+Bài 6: <br>
+![image](https://github.com/user-attachments/assets/d408a899-a64e-4ab5-943e-7a039021eef9)
+<br>
+
 
 
 
