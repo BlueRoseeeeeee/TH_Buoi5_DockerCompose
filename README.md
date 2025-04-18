@@ -1,3 +1,19 @@
+Phần I: <br>
+![image](https://github.com/user-attachments/assets/8fa27d89-711d-4ee3-a2b3-6c790eb2bbe3)
+<br>
+![image](https://github.com/user-attachments/assets/768876d0-0a2f-4b8a-8aca-84c5741a1f05)
+<br>
+![image](https://github.com/user-attachments/assets/39dff81a-0183-4f80-97cb-25aa53d82a3f)
+<br>
+![image](https://github.com/user-attachments/assets/fdff8f87-bdc9-4e79-bbbf-fdf4a520e537)
+<br>
+![image](https://github.com/user-attachments/assets/2fed1ae3-7c68-4116-8074-30f9dd02abb5)
+<br>
+![image](https://github.com/user-attachments/assets/7bda5171-46e1-4283-bdc4-3d89c0674695)
+<br>
+![image](https://github.com/user-attachments/assets/953ce758-c70a-42a9-a48b-5d2f87231a7b)
+<br>
+
 Phần II: <br>
 Bài 1: <br>
 ![image](https://github.com/user-attachments/assets/5415043e-98ef-4c7f-89aa-0627bb2db8ff)
