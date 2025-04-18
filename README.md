@@ -30,6 +30,9 @@ Bài 7: <br>
 <br>
 Bài 9: <br>
 ![image](https://github.com/user-attachments/assets/be865791-d0c7-4f21-9593-bc272c721509)
+Bài 11: <br>
+![image](https://github.com/user-attachments/assets/7c78ba4f-6a82-44f1-ad12-debce15132ad)
+
 
 
 
